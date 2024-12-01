@@ -1,3 +1,3 @@
-- Houston, Texas
-- Trynna make money with comfyUI
+- Houston 🏢
+- Jesus ✝️
 - AI 🤖
